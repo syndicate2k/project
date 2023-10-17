@@ -1,1 +1,1 @@
-Ushakov  M.A.
+Ushakov  M A
